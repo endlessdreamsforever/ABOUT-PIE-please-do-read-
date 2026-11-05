@@ -23,6 +23,7 @@ Strawpage ; https://piesofficalsite.straw.page
 Atabook ; 
 https://p13issoawsomeright.atabook.org/
 Tumblr ; https://www.tumblr.com/piesofficialaccount?source=share
+Tiktok: GONE (Mother deleted it..)
 
 ![Tumblr Picture](https://64.media.tumblr.com/5f859d4a00a21d09f869021c61d54168/a4f01f5006db971f-4b/s2048x3072/9977575db68f00fbbd50b426f065309b06aa0c15.png)
 
@@ -41,6 +42,7 @@ DNI ; THIS APPLIED TO ALL! If I have this, DO NOT INTERACT TO ME AT ALLL!!! INCL
 ![Tumblr Picture](https://64.media.tumblr.com/5f859d4a00a21d09f869021c61d54168/a4f01f5006db971f-4b/s2048x3072/9977575db68f00fbbd50b426f065309b06aa0c15.png)
 
 Okay, all about me now!
+
 Pronouns page ; 
 
 https://en.pronouns.page/@P13SPR0N0UNSP4G3
@@ -51,6 +53,7 @@ Discomforts (because some people always say some crazy things to me) ;
 3. interrupting me and switching the topics, yeah I dont like this one.
 4. randomly coming up to me and just stare?
 5. saying random bs that can make me upset/cry irl like "its bc you are 8" hello i was doing anons but okay !
+6. calling me weird, romatically names, I have a girlfriend you know.
 
 uhh my dnis
 1. zoos.
@@ -58,6 +61,8 @@ uhh my dnis
 3. rude or mean ppl.
 4. age players.
 5. racists.
+6. tf2 fan base
+7. solarballs fan base
 (note: ill interact to everyone as long as they understand my boundary.)
 
 ![Tumblr Picture](https://64.media.tumblr.com/0a37ac36dda610cea1b9f8b3a4f74970/33244caa36c890f6-94/s640x960/dd70e4352e00f5b9524d7ac62b9fbff6c30ae127.png)
