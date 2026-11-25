@@ -1,7 +1,10 @@
 # ABOUT-PIE-please-do-read-
 ![Tumblr Picture](https://64.media.tumblr.com/0a37ac36dda610cea1b9f8b3a4f74970/33244caa36c890f6-94/s640x960/dd70e4352e00f5b9524d7ac62b9fbff6c30ae127.png)
 ![My Tumblr Picture](https://64.media.tumblr.com/8d4012d4e8e66325317f99229096280b/54618f081c61644a-b1/s1280x1920/2f80c9811b0eb9ec1aa3366b8a2331795d6e9403.png)
-ʜɪ ꜰᴇʟʟᴏᴡ ᴘᴏɴɪᴇꜱ! ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ɢ1ᴛʜᴜʙ!!! 
+
+so uh important notes byi:
+I AM HEAVILY HYPERSENSETIVE PERSON!!! yes, i WILL absolutely get my whole mood destroyed because I WILL THINK i am a horrible friend if you like, move away from cuddling and somewhere far. sorry. and I am also emotionally attached easily to friends, so hence that's why that'll be my reaction if you ever try to do that. I will also FREELY block, even if you're an oomf if mine, I WILL BLOCK YOU if you discard me like im just a trashling. AND, use gentlet words around me, and be careful of using jokes, as some jokes can literally harm me and can make me feel distant and angry at you. I can also get frustrated easily, and hide you because that'll make me feel better. If you don't fucking like these traits of mine, block me. 
+
 
 ᴏᴋᴀʏ ᴏᴋᴀʏ! ꜱᴛᴀᴛᴜꜱ ꜰɪʀꜱᴛ!
 
